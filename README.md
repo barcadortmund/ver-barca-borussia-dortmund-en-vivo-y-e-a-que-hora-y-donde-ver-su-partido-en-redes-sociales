@@ -1,6 +1,15 @@
 # +Ver-barca-borussia-dortmund-en-vivo-y-e-a-que-hora-y-donde-ver-su-partido-en-redes-sociales
 
 BORUSSIA DORTMUND VS FC BARCELONA EN VIVO EN DIRECTO ONLINE - ENLACE DÓNDE VER PARTIDO CHAMPIONS LEAGUE HOY
+
+
+📺📱👉◄◄🔴 https://tinyurl.com/2w7utkbj
+
+📺📱👉◄◄🔴 https://tinyurl.com/2w7utkbj
+
+📺📱👉◄◄🔴 https://tinyurl.com/2w7utkbj
+
+
 Enlace para seguir en directo el resultado del partido de la sexta jornada de la fase liga entre el Borussia Dortmund y el FC Barcelona a hoy miércoles 11 de diciembre de 2024.
 HORARIO DEL PARTIDO BORUSSIA DORTMUND VS FC BARCELONA
 Desde las 21:00 horas (CET)
